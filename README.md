@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Lety7salm
+- 💋 I’m interested in games, animals, beauty...
+- ❤ Pronouns: she/her
